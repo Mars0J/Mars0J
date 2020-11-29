@@ -15,4 +15,4 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 
-[Instagram](https://instagram.com/login)
+[Instagram](https://instagram.com/Mars.111k)
