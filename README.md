@@ -1,6 +1,6 @@
 ### MARS PROFILE LIBRARY
 
-#### GRAY HAT HACKER
+#### BLACK HAT HACKER
 
 [Instagram](https://instagram.com/mars.111k)
 
