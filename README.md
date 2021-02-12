@@ -8,7 +8,7 @@
 
 [Reddit](https://www.reddit.com/u/Mars0j)
 
-![](https://logodix.com/logo/2052449.png)
+![Ruby](https://logodix.com/logo/2052449.png)
 
 
 <p><img align="center" src="https://github-readme-stats.vercel.app/api/top-langs?username=Mars0J&show_icons=true&locale=en&layout=compact" alt="Mars0J" /></p>
