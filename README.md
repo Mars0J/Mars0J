@@ -6,8 +6,10 @@
 
 [Twitter](https://mobile.twitter.com/Mars13104551)
 
-[Reddit](https://www.reddit.com/u/Mars0j)
+[Reddit](https://www.reddit.com/u/Mars0)
 
+
+ kostenpflichtige Software auf meiner Website verfügbar
 
 
 
